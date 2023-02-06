@@ -1,4 +1,4 @@
-## [COMPANY NAME] (TBD)
+## UwU Games
 
 
 [COMPANY NAME] is a Game Studio from Brazil.
